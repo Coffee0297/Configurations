@@ -1,1 +1,0 @@
-¨Gitlab er en fucking cunt
